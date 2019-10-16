@@ -7,7 +7,6 @@ Hello World! My name is Zarina Mazieva
 I am originally from country called **Kyrgyzstan*** We moved to United States in 2004 with my family, husband and two kids.
 
 > **Kyrgyzstan***
-
 > The country used to were together with Soviet Union and when the Union started to fall apart back in 1990 we declared independence.
 >  
 > Kyrgyzstan is located in Central Asia, surrounded with mountains. The nature is very beautiful there! Mountains, lakes with fresh water, organically grown vegetables and grass fed beef and lamb.
